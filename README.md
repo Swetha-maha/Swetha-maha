@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Swetha-maha
+- 👀 I’m interested in web development
+- 🌱 I’m currently learning blockchain,Android&Fullstack development
+- 💞️ I’m looking to collaborate on Research Projects,Student Organizations,Internships and Co-op Programs,Hackathons,Open Source Projects 
+- 📫 emai-id:swethasuresh9159@gmail.com
+-    linkedin-id:asosuresh92@gmail.com
+- I'm studing in cse 
